@@ -1,3 +1,1 @@
 # myportfolio
-
-##Kim Russel Agpaoa
